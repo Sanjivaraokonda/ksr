@@ -1,1 +1,1 @@
-# ksr
+# Konda Sanjivarao
